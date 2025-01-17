@@ -1,2 +1,2 @@
-# fdg
-why
+Pro script
+discord.gg/voidware
